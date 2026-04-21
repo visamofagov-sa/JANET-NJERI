@@ -1,1 +1,1 @@
-<img width="1080" height="1350" alt="Visa is Active - 2026-04-17T181622 090" src="https://github.com/user-attachments/assets/68c0603a-dbea-4b38-a488-e75ad250d4f4" />
+<img width="482" height="603" alt="Screenshot 2026-04-21 at 23 53 39" src="https://github.com/user-attachments/assets/1265683e-6362-4b34-8912-400f61152b7d" />
